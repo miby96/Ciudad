@@ -1,4 +1,4 @@
-# En este blog colocaré información sobre el concepto de Ciudad, fenómenos urbanos y tendencias de América Latina. 
+# En este blog colocaré información sobre los distintos conceptos de Ciudad, fenómenos urbanos y tendencias de América Latina. 
 
 Como pensamiento.....
 
